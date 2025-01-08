@@ -2,7 +2,7 @@
 - 👀 I’m interested in Real Life and meet people
 - 🌱 I’m currently learning in the Best World Unisersity : The LIFE
 - 💞️ I’m looking to collaborate with somme cool people
-- 📫 How to reach me is simople : sylvain.hermet
+- 📫 How to reach me is simple : sylvain.hermet
 - 😄 Pronouns: Sylvain Hermet
 - ⚡ Fun fact: GOD
 
